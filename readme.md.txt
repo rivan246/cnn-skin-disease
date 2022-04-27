@@ -1,0 +1,1 @@
+langsung buka aja shayy
