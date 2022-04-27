@@ -1,1 +1,1 @@
-langsung buka aja shayy
+langsung buka aja shayy yang skin_disease.md
